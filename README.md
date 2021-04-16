@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @super-mad-scientist
-- 👀 I’m interested in making evil stuffs and creating havoc in the world and slaving humanbeing
+- 👀 I’m interested in making evil stuffs and creating havoc in the world in purpose of enslave human being
 - 🌱 I’m currently learning to not master anything but myself
 - 💞️ I’m looking to collaborate on 4th dimension with Kanye West
 - 📫 How to reach me. Usually I do telepathy.
